@@ -1,1 +1,1 @@
-# Laboratiorio_EquipoA01706777
+# Laboratorio_EquipoA01706777
